@@ -20,3 +20,5 @@ But I make you sure that If I am accepted to the academy, I will make great effo
 I am already very excited to have the chance to learn these technologies by having the chance to ask questions to engineers who have experience
 in these technologies.
 Thanks for your tolerances.
+
+https://user-images.githubusercontent.com/73781928/124346007-01da2780-dbe5-11eb-8637-fad8f255352e.mp4
